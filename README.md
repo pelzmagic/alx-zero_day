@@ -1,1 +1,1 @@
-My first readme
+I attend Obafemi Awolowo University
